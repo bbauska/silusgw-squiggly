@@ -1,2 +1,2 @@
-# squiggly
-Squiggly letters
+# SilusGW squiggly
+Silus Gaming World (silusgw) Squiggly letters
